@@ -1,2 +1,2 @@
 # hello-world
-A magical place to store ideas.. i guess
+I am a human being. I love to eat food. I honestly think that I like Asian food the most. It's just something about that type of food that is just amazing to me. I love to eat ice cream but my stomach often disagrees with me after I eat it. I can't wait to graduate from school. Being in school is such a slower pace than being in the military. Anyways that's enough about me. If you want to know more than you'll have to find out next time on....
